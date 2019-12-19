@@ -27,3 +27,13 @@ Address: 42001 Christy St, Fremont, CA 94538
 Closed ⋅ Opens 12PM
 
 Phone: (510) 771-1700
+
+# Local SV cities
+sANTA cLARA
+https://www.booksalefinder.com/CAB.html#X15757
+Sunnyvale
+https://www.booksalefinder.com/CAB.html#X1076
+Cupertino
+https://www.booksalefinder.com/CAB.html#X7544
+Milpitas
+https://www.booksalefinder.com/CAB.html#X1601
