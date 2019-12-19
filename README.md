@@ -16,3 +16,14 @@ https://www.facebook.com/events/scholastic-book-fairs-warehouse-san-francisco-br
 
 https://www.dealtrackersf.com/friends-of-sf-public-library-big-book-sale/
 Want FREE books? Volunteer. Volunteers receive complimentary tickets to the Member Preview Sale & Reception, a first look at all the items, and a $5 coupon for every shift. Spaces are still open. Call (415) 477-5223 or email brenda.salguero@friendssfpl.org
+
+
+Scholastic Book Fairs
+4.0
+
+Book store in Fremont, California
+Address: 42001 Christy St, Fremont, CA 94538
+
+Closed ⋅ Opens 12PM
+
+Phone: (510) 771-1700
