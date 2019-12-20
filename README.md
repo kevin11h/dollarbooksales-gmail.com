@@ -9,7 +9,7 @@ https://github.com/kevin11h/bestselling-book-categories
 
 https://github.com/kevin11h/A-book-store-online-sales-site/
 
-
+http://www.sellbackyourbook.com/Libraries/
 
 https://www.facebook.com/events/scholastic-book-fairs-warehouse-san-francisco-branch/scholastic-book-fairs-big-event-warehouse-sale-fremont-ca/552670091886743/
 
@@ -49,3 +49,5 @@ https://www.booksalefinder.com/CAB.html#X93
 
 ?
 https://www.booksalefinder.com/CAB.html#X1546
+
+# http://www.sellbackyourbook.com/Libraries/
