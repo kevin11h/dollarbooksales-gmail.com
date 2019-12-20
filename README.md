@@ -40,3 +40,12 @@ https://www.booksalefinder.com/CAB.html#X7544
 
 Milpitas
 https://www.booksalefinder.com/CAB.html#X1601
+
+Palo Alto
+https://www.booksalefinder.com/CAB.html#X1603
+
+Napa
+https://www.booksalefinder.com/CAB.html#X93
+
+?
+https://www.booksalefinder.com/CAB.html#X1546
