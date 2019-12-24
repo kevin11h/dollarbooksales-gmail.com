@@ -1,6 +1,9 @@
 # dollarbooksales-gmail.com
 dollarbooksales@gmail.com
 
+# where to sell for $?
+https://bookriot.com/2017/10/31/sell-used-books/
+
 https://github.com/kevin11h/Wisdom-from-Treasury-of-Scripture-Elijah-and-the-Widow-Family-Friends-Neighbors-Oils-Jar-Business
 
 https://www.booksalefinder.com/CAB.html
