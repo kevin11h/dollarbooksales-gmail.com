@@ -9,8 +9,8 @@ https://bookriot.com/2017/10/31/sell-used-books/
 # Wordpress book store & church theme template https://colorlib.com/wp/library-book-store-wordpress-themes/
 https://github.com/kevin11h/Wisdom-from-Treasury-of-Scripture-Elijah-and-the-Widow-Family-Friends-Neighbors-Oils-Jar-Business
 # Wordpress book store & church theme template https://colorlib.com/wp/library-book-store-wordpress-themes/
-https://www.booksalefinder.com/CAB.html
-
+https://www.booksalefinder.com/CAB.html  https://athemes.com/collections/best-wordpress-themes-selling-ebooks/
+# https://athemes.com/collections/best-wordpress-themes-selling-ebooks/
 https://github.com/kevin11h/bestselling-book-categories
 
 https://github.com/kevin11h/A-book-store-online-sales-site/
