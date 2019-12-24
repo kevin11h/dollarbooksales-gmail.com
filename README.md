@@ -3,6 +3,9 @@ dollarbooksales@gmail.com
 
 # where to sell for $?
 https://bookriot.com/2017/10/31/sell-used-books/
+1. https://bookscouter.com/
+2. https://www.ebay.com/sl/sell?sr=wnstart
+3. Amazon
 
 https://github.com/kevin11h/Wisdom-from-Treasury-of-Scripture-Elijah-and-the-Widow-Family-Friends-Neighbors-Oils-Jar-Business
 
