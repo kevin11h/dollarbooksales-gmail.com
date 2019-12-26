@@ -63,3 +63,6 @@ https://bookscouter.com/sell/0023558210-probability-and-statistical-inference
 http://www.powells.com/SellBooksOnline/OfferBid.aspx?previousModuleTabID=513
 https://bookscouter.com/sell/1429219475-psychology
 https://www.sellbackbooks.com/sellcart.aspx?invalidtotal=1
+
+
+Luke 21:14
